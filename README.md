@@ -1,5 +1,5 @@
 Hello World!👋
-I'm attending SAIT in the IDD Graphic Design program.
+I'm attending SAIT in the IDD Graphic Design program. Welcome to my profile!
 
 Facts about me:
 
